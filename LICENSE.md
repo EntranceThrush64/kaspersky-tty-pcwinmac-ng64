@@ -1,4 +1,4 @@
-# 
+# آلي Kaspersky Total Security إضافات لـ Mac OS | جديد Kaspersky Total Security إضافات لـ PC Windows. مع الإعدادات الخاصة و تحليل البيانات التاريخية — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
